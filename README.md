@@ -1,3 +1,3 @@
 https://scoobeedoo.atabook.org/
 
-[![c48a08ec82e0cb40cb7006aa1b7832bb.gif](https://i.postimg.cc/1tB48BGn/c48a08ec82e0cb40cb7006aa1b7832bb.gif)](https://postimg.cc/k6V7Zxhq)
+[![79d09650a9cef3a7832b6c2bdfc9ad0f.jpg](https://i.postimg.cc/TYNxpSZM/79d09650a9cef3a7832b6c2bdfc9ad0f.jpg)](https://postimg.cc/8jv9Yypt)
